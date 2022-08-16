@@ -1,0 +1,1 @@
+# QAA-training-Gazizov-Adel
